@@ -14,3 +14,13 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+Hello, I work in operations for Steady Install
+- 🔭 I’m currently working on Zendesk 
+- 🌱 I’m currently learning anything Dev related
+- 🇺🇸 Based out of the U.S.
+- 🇲🇽 First Gen Chicano
+- 🎦
+- ♊
+- ⚛
+- 👟
+- 🎼🎵🎶🎙🎚🎛
